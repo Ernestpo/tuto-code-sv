@@ -1,0 +1,11 @@
+ El hombre, paso a paso, ha hecho su paisaje, amoldándolo a sus exigencias. Con esto,
+ el campo ha seguido siendo campo, pero ha dejado de ser Naturaleza.
+ Mas, al seleccionar las plantas y animales que le son útiles
+ ha empobrecido la Naturaleza original,
+ lo que equivale a decir que ha tomado una resolución precipitada porque el hombre sabe lo que le es útil hoy
+ pero ignora lo que le será útil mañana.
+ Y el aceptar las especies actualmente útiles y desdeñar el resto supondría,
+ según nos dice Faustino Cordón,
+ sacrificar la friolera de un millón de especies animales y medio millón de especies vegetales,
+ limitación inconcebible de un patrimonio que no podemos recrea
+ y del que quizá dependieran los remedios para el hambre y la enfermedad de mañana. 
